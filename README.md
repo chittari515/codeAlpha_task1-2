@@ -6,3 +6,4 @@
 ![image alt](https://github.com/chittari515/codeAlpha_task1-2/commit/baf9f4b7502de9f14b247b57d22f302f42739228)
 ![Image](https://github.com/user-attachments/assets/63d80a12-d868-403a-a957-80a31a1c5116)
 ![Image](https://github.com/user-attachments/assets/63d80a12-d868-403a-a957-80a31a1c5116)
+![Image](https://github.com/user-attachments/assets/1808a806-bf5e-465b-acef-73fba2494b1f)
